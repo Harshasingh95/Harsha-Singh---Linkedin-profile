@@ -1,2 +1,1 @@
-# Harsha-Singh---Linkedin-profile
-Harsha Singh - Linkedin profile
+https://www.linkedin.com/in/harsha-singh-03231b15a/
